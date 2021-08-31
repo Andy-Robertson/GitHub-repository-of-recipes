@@ -11,6 +11,7 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
+* 1/4 cup of icing sugar
 
 Steps
 =====
@@ -19,3 +20,5 @@ Steps
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
 4. Microwave for 1 minute 40 seconds.
+5. Mix icing sugar in a bowl with water
+6. Cover top of each brownie with the desired thickness of icing sugar
