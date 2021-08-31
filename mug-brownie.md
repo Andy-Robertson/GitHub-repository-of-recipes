@@ -2,6 +2,8 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
+This recipe was handed down to me from my mum who used to bake a lot, so you could say its a family recipe.
+
 What you need
 =============
 
